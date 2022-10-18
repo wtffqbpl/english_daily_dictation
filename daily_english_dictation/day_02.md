@@ -1,3 +1,4 @@
+## Lession 3
 Ok, dictation No2, was it easy for you? Well, Gourge has the first line
 and he says what time do you have? And Jery responsed I have five o'clock.
 A lot of students have 
@@ -24,4 +25,25 @@ Oh, i've five o'clock.
 
 snoopy/ charely brown
 
-there're three things that i've learn never to discuss with people, relgion, politics, and great pumpkin.
+> there're three things I have learned Never to discuss with people, relgions, politics, and great pumpkin.
+
+No1, relegion do not discuss relegions with people. Linus is 6 years old, and he knows this? what Jesus
+No2, politics, never discuss plitics with people,
+and No3, great pumpkin.
+
+Do you want to know great pumpkin what it is? Do you know santa claus, most many many children around
+the world believe santa claus, santa claus who is the person 
+
+In America, and other countries, halloween linus believes 
+
+there's a great pumpkin that comes and delivers to children who believe.
+
+unfortunately, there's only linus believes great pumpkin. If he talks great pumpkin, other people
+thinks he is crazy.
+So he doesn't talk about the great pumpkin.
+
+well, we're ready to dictation for No 4, and the dictation No 4 is from the movie "the pursue of happiness"
+
+keep working hard, 
+
+> don't never let somebody tell you, you can't do something.
