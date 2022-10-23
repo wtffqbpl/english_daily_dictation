@@ -46,4 +46,25 @@ well, we're ready to dictation for No 4, and the dictation No 4 is from the movi
 
 keep working hard, 
 
-> don't never let somebody tell you, you can't do something.
+> don't ever let somebody tell you, you can't do something.
+
+Three STRONG sounds: s/n/l
+
+Three WEAK sounds: d/t/th
+
+If there's a [d|t|th] next to the [s|n|l], many times, these WEAK sounds are canceled.
+
+* You and I : 这里的 d 不发音, 因此正确的发音为: You a ni
+
+* international: 这里的 inter 中的t 不发音，因为前面的n让t不发音, 导致最终的发音为 [inernational] 这个音
+
+* don't ever : t，由于前面的n，导致不发音,因此这个语句的发音为 donever 
+
+* let ---> 发音为: le 
+
+GRAMMATICALLY: "somebody" should be "anybody" ("not" goes with "any~")... But please
+don't worry about grammar.
+
+* can't --- n 导致 t 不发音
+
+* something --- 发音为: sump'n ( 这里的p不发音 )
