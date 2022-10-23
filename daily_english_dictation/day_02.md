@@ -68,3 +68,28 @@ don't worry about grammar.
 * can't --- n 导致 t 不发音
 
 * something --- 发音为: sump'n ( 这里的p不发音 )
+
+## Daily English Dictation 6
+
+<The Live>
+I have come here to choose bubble gum and kick ass and ball the bubble gum.
+
+The final sentence:
+I have come here
+  to chew bubblegum
+  and kick ass
+
+and i'm all out of bubblegum!
+( I have no more bubble gum)
+
+* 这里的 to chew 中的to 在美式发音中最常用的有两种 te,de 这里发音为 de
+* and kick ass 中的and，d不发音
+* and i'm --> an-dahm
+* amd i'm all out of --- an-dah-ma-louda
+* out of --- 在美式发音中，经常发音为 outta [ouda] 这里的f，由于后面经常跟着辅音，导致f也不发音
+
+* to kick ass sth -- 表示做某个事情非常好 do sth really really well.
+
+
+What I learned:
+> The secret of life is just live what you want.
