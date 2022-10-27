@@ -91,5 +91,31 @@ and i'm all out of bubblegum!
 * to kick ass sth -- 表示做某个事情非常好 do sth really really well.
 
 
+## Daily English Dictation 7
 What I learned:
 > The secret of life is just live what you want.
+
+The correct sentence is:
+
+> The secret of life is just live every moment.
+
+* secret of ---> secretof, sometimes, f should be omitted.
+* life is ---> lifeis
+* just 经常发音为 juss
+* to 发音为 t'
+* live every ---> ve-ev 可以连在一起读, ve可以不发音
+
+* live --- carpe diem! Size the day~  means to live meanfully.
+
+don't waste your time 
+do something, be proative, be passionate, be possitive, has no regrets, smile, and dream for the future.
+
+## Daily English Dictation 8
+
+UBS Bank. they have a crazy banker.
+
+From AP News
+
+What i listened:
+
+> Another role trader has constant bank billions.
