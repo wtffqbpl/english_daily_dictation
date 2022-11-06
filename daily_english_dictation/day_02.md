@@ -75,12 +75,12 @@ don't worry about grammar.
 I have come here to choose bubble gum and kick ass and ball the bubble gum.
 
 The final sentence:
-I have come here
-  to chew bubblegum
-  and kick ass
-
-and i'm all out of bubblegum!
-( I have no more bubble gum)
+> I have come here
+>  to chew bubblegum
+>  and kick ass
+>
+> and i'm all out of bubblegum!
+> ( I have no more bubble gum)
 
 * 这里的 to chew 中的to 在美式发音中最常用的有两种 te,de 这里发音为 de
 * and kick ass 中的and，d不发音
@@ -118,4 +118,51 @@ From AP News
 
 What i listened:
 
-> Another role trader has constant bank billions.
+Another role trader has constant bank billions.
+
+* Actual sentence
+> Another rogue trader has cost a bank billions.
+
+* Another rogue ---> Another-ogue
+* rogue --- a dishonest or worthless person.
+* trader ---> investment banker.
+
+rogue trader --- not just a regular trader, like me, 
+
+rogue --- is a very negative word, which means dishonest.
+Another --- means there are others in the past.
+
+cost a ---> cosda
+
+billions ---> billions of dollars.
+
+lost billions of dollars for a bank.
+
+`cost` is a great word,
+
+## Daily English Dictation 9
+
+piercings
+
+Ruf Brocals
+
+* What i heard
+> German, Ruf Brocals, is the man with the most piercings he has got 453.
+
+The actual sentence is:
+
+> German, Rolf Buchholz, is the man with the most piercrings; he's got 453!
+
+* is the ---> is-zuh
+* with the ---> when we have the similar sounds next to each other, we can connect it,
+  just like a sound, `with-e`
+* most ---> no `t`, mos
+
+* he's got ---> he has got
+* 453 ---> 4 hundred 53, hundred, hu-nerd, just 
+
+## Daily Engilish Dictation 10
+
+* What I heard
+> A sattilite who is carry space shttule discovery, 20 years ago is about fall to the earth,
+> but nobody knows where did they bring where him.
